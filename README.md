@@ -1,8 +1,8 @@
-👉 https://cryptach.org <br>
+👉 Сайт: https://cryptach.org <br>
 🐹 Канал: https://t.me/Cryptach <br>
 💬 Чат: https://tSnipach <br>
-🐦 https://twitter.com/cryptach <br>
-📷 https://instagram.com/cryptach <br>
+🐦 Твиттер: https://twitter.com/cryptach <br>
+📷 Интсаграм: https://instagram.com/cryptach <br>
 
 <b>Cryptach</b> 2021 Криптач - большой каталог Токенов, DeFi, NFT, Вайтлистов, IDO, Гемов, Аудитов щиткоинов. presale, fairlaunch.
 Огромная база щиткоинов в разных сетях. Снайпинг, Боты, Аирдропы, GameFi. 
