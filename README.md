@@ -1,11 +1,11 @@
-👉 https://cryptach.org
-🐹 Канал: https://t.me/Cryptach
-💬 Чат: https://tSnipach
-🐦 https://twitter.com/cryptach
-📷 https://instagram.com/cryptach
+👉 https://cryptach.org <br>
+🐹 Канал: https://t.me/Cryptach <br>
+💬 Чат: https://tSnipach <br>
+🐦 https://twitter.com/cryptach <br>
+📷 https://instagram.com/cryptach <br>
 
-Cryptach 2021 Криптач - большой каталог Токенов, DeFi, NFT, Вайтлистов, IDO, Гемов, Аудитов щиткоинов. presale, fairlaunch.
+<b>Cryptach</b> 2021 Криптач - большой каталог Токенов, DeFi, NFT, Вайтлистов, IDO, Гемов, Аудитов щиткоинов. presale, fairlaunch.
 Огромная база щиткоинов в разных сетях. Снайпинг, Боты, Аирдропы, GameFi. 
 
-Cryptach 2021 - Large catalog of Tokens, DeFi, NFT, Whitelists, IDOs, Gems, Shield Audits. presale, fairlaunch.
+<b>Cryptach</b> 2021 - Large catalog of Tokens, DeFi, NFT, Whitelists, IDOs, Gems, Shield Audits. presale, fairlaunch.
 Huge base of shitcoins in different networks. Sniping, Bots, Airdrops, GameFi. 
