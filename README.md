@@ -1,6 +1,6 @@
 👉 Сайт: https://cryptach.org <br>
 🐹 Канал: https://t.me/Cryptach <br>
-💬 Чат: https://tSnipach <br>
+💬 Чат: https://t.me/Snipach <br>
 🐦 Твиттер: https://twitter.com/cryptach <br>
 📷 Интсаграм: https://instagram.com/cryptach <br>
 
